@@ -1,2 +1,2 @@
-# IT-XAKIR
+# MISTER XAKIR jamoasi
 Hardoyim birinchi bul va yaxshilikka bul
